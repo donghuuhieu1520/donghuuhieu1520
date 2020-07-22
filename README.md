@@ -1,4 +1,6 @@
-### Hi there 👋
+(づ￣ ³￣)づ	(つ≧▽≦)つ
+
+### 👋 I'm 20, hungry for learning, love sharing knowledge
 
 <!--
 **donghuuhieu1520/donghuuhieu1520** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
